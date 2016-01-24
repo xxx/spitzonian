@@ -455,7 +455,7 @@ Just a tad
 Probably the Germans say somethin' like quxjqqtz  
 I wanna think  
 I'm workin' and yer givin' me all this garbage  
-I'm goin outta my brain here  
+I'm goin' outta my brain here  
 I'll talk, I'll tell ya what I'm talkin' about, but maybe I won't. But then again, maybe I will  
 It's so gangbusters compared to that one  
 OH is there to johnny-on-the-spot  
