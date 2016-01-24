@@ -176,7 +176,7 @@ I'm gonna zing ya
 Bang ba ba ba ba BAM BAM BAM!  
 Cut off your tongue; we don't talk about that  
 They give me grams and I want moles  
-Dooflinkus
+Dooflinkus  
 
 *Striano retires, Dungan takes over*
 
@@ -371,7 +371,7 @@ Don't be mad at me
 You'll let me answer the questions, won't ya?  
 Now wutthahek?  
 Dumb ol' 3/2  
-Wutthahek is the mechanism?
+Wutthahek is the mechanism?  
 He sez "in a moment, everything is gonna tear loose here"  
 The mother's the slowest, isn't she?  
 She's doin' 15,000 things at once for everybody  
@@ -393,7 +393,7 @@ It can say "Carbon, chlorine has been hoggin' the electron pair all this time. I
 There's a "k" right there  
 Yer lips were goin' up and down, but I know ya weren't talkin', so ya musta faked me out  
 Too bad I'm 3.2  
-El noteso
+El noteso  
 
 #### Page 12 (Dungan)
 
@@ -525,4 +525,4 @@ Scrounge some pi electrons
 Yer brain goes GUNH!  
 DON'T SNIFF ETHER! Buy I know yer gonna, now that I said it  
 I gotta wax it up 'fore I put it in the drink  
-Don't rassle with the lifeguard
+Don't rassle with the lifeguard  
