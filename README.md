@@ -1,4 +1,4 @@
-##### This is not a code repository. It's just a place where I can upload this file for people who were there can read.
+##### This is not a code repository. It's just a place where I can upload this file for people who were there to read.
 
 #### Page 1 (Striano)
 
