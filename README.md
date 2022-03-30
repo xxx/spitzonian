@@ -523,6 +523,6 @@ ATCG - A tall cat gags
 AU - Hey you  
 Scrounge some pi electrons  
 Yer brain goes GUNH!  
-DON'T SNIFF ETHER! Buy I know yer gonna, now that I said it  
+DON'T SNIFF ETHER! But I know yer gonna, now that I said it  
 I gotta wax it up 'fore I put it in the drink  
 Don't rassle with the lifeguard  
